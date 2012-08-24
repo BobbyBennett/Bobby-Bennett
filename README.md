@@ -1,0 +1,4 @@
+Bobby-Bennett
+=============
+
+I represent the worlds best hedge funds and investment banks where technology is central to their competitive edge. My client list includes more than 25 of the top 100 hedge funds, the top 5 investment banks, the best financial software companies and a host of others. I am tasked at finding high proficiency software engineers and computer scientists that want a unique technical horizon and work to solve complex, real-world problems.  My specialty is finding talent for our clients in the areas of software engineering and development, technology architecture, quantitative modeling, business/equity analyzing and risk managing. If you are or know anyone who would be interested in a brief chat, please contact me at BBENNETT INSITESEARCH.COM. I look forward to hearing from you.  ** REFERRAL BONUS ** You refer me a friend, I place them, you get paid.
